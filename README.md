@@ -1,4 +1,4 @@
-I am the bone of my sword
+I am the bone of my sword.
 
 Steel is my body and fire is my blood.
 
