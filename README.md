@@ -1,16 +1,15 @@
-### Hi there 👋
+I am the bone of my sword
 
-<!--
-**yunsteel/yunsteel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Steel is my body and fire is my blood
 
-Here are some ideas to get you started:
+I have created over a thousand blades
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Unknown to Death
+
+Nor known to Life
+
+Have withstood pain to create many weapons
+
+Yet, those hands will never hold anything
+
+So as I pray, <b>"unlimited blaed works"</b>.
